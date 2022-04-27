@@ -1,2 +1,0 @@
-# WEW
-WEW SHOTS
